@@ -1,1 +1,1 @@
-# Liv-Jack-AI-Final-Project-2025
+# AI-Final-Project-2025
